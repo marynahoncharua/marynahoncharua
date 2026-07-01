@@ -86,8 +86,8 @@ I’m especially useful in small teams where one person needs to combine manual 
 
 ## 📫 How to reach me
 
-* ✉️ Email: coming soon
-* 💬 Telegram: coming soon
+* ✉️ Email: maryna@webart.work
+* 💬 Telegram: [@PotierMari](https://t.me/PotierMari)
 
 ---
 
